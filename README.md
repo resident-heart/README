@@ -5,7 +5,7 @@
   <p> <b>KIE</b>RAN , HEART or <b>SPAM</b>TON </p>
   <h2></h2>
     <br>
-   <p> worlds worst spamton fictive ever  </p>
+   <p> worlds worst spamton/heart fictive ever  </p>
      <p> <b>W2I</b> to get my attention , i'm usually offtab ! <br>
      don't be afraid to interact with me :^) i am a wuss and not scary in the slightest </p>
      <p> do not copy my ponies !! some inspiration is fine , otherwise i will find you </p>
