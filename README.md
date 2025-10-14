@@ -2,7 +2,6 @@
   <img src="https://i.postimg.cc/DyZL916V/G2-O6-XSEbo-AAKBN01.png" width="40%" height="auto">
     <h2></h2>
   <br>
-   <p> worlds worst spamton fictive ever  </p>
      <p> <b>W2I</b> to get my attention , i'm usually offtab ! <br>
      don't be afraid to interact with me :^) i am a wuss and not scary in the slightest </p>
      <p> do not copy my ponies !! some inspiration is fine , otherwise i will find you </p>
